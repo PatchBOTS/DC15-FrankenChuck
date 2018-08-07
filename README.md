@@ -1,5 +1,5 @@
 
-[![L337](https://imgur.com/IxUqplp)](https://youtu.be/_PuSDQuakGY)
+[!https://i.imgur.com/IxUqplp.jpg)](https://youtu.be/_PuSDQuakGY)
 # DC-15 FRANKENCHUCK
 
 
